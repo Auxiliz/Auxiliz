@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Auxiliz
+- 👀 I’m interested in open things and specificaly open urbanism & open territories
+- 🌱 I’m currently learning how to scale our visual collective intelligence civictechs
+- 💞️ I’m looking to collaborate on collective intelligence projects
+- 📫 How to reach me ; alain.renk@urbanismeouvert.ch
